@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+code&pause=1000&color=0001FF&width=435&lines=Hi+i'm+deenx+!;Welcome+to+my+page+!!!;There+is+nothing+for+now+unfortunately...;But+stay+tuned+!;Have+a+good+day.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+code&duration=3000&pause=1000&color=0001FF&width=435&lines=Hi+i'm+deenx+!;Welcome+to+my+page+!!!;There+is+nothing+for+now+unfortunately...;But+stay+tuned+!;Have+a+good+day.)](https://git.io/typing-svg)
